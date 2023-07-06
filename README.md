@@ -1,4 +1,4 @@
-Hey, I'm Ayo and i do pretty Amazing things with my Laptop and Javascript with some music of course aaaaand you could check 'em out below 
+Hey, I'm Ayo and i do pretty Amazing things with my Laptop and Javascript with some music of course aaaaand you could check 'em out below. 
 so yeah, that's pretty much it
 
 
